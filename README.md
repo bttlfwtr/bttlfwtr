@@ -1,1 +1,1 @@
-![meso_bag](https://github.com/bttlfwtr/bttlfwtr/assets/146924675/4cfafa2c-f4b6-4daa-a634-9b754e92413e)
+![meso_bag](https://github.com/bttlfwtr/bttlfwtr/assets/146924675/8860f3c7-db59-4103-a5d4-2f9cb101268e)
