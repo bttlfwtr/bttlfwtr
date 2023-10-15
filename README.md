@@ -1,1 +1,1 @@
-![alt text](meso bag.png)
+![Screenshot](meso bag.png)
